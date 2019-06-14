@@ -1,2 +1,0 @@
-# whiteKopi
-mbf version asu
